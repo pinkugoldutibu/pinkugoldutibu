@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @pinkugoldutibu
+- 👋 Hi, I’m Sharol
 - 👀 I’m interested in html
-- 🌱 I’m currently learning html
+- 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on roblox
 - 📫 How to reach me ask my teacher
 - 😄 Pronouns: MS Mayuri
