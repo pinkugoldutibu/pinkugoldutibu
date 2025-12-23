@@ -3,8 +3,9 @@
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on roblox
 - 📫 How to reach me ask my teacher
-- 😄 Pronouns: MS Mayuri
+- 😄 Pronouns:  Mayuri maa'am 
 - ⚡ Fun fact: i love codingal
+- 🙏🏻Pls sub to my youtube channel pinkukiduniya with the icon of 2 teddybear one is gold and one is pink!.
 
 <!---
 pinkugoldutibu/pinkugoldutibu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
